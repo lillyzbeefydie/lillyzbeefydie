@@ -1,4 +1,4 @@
-# lillyzbeefydie
+# fandhulism
 ♫⋆｡♪ ₊˚♬ ﾟ. PLAYING SHADOW ISLET ♫⋆｡♪ ₊˚♬ ﾟ.
           ▶︎•၊၊||၊|။|||||။၊|။•
 ♬⋆.˚I dont mind c+h or cuds, I block freely ‧₊˚♪𝄞࿐₊˚⊹
